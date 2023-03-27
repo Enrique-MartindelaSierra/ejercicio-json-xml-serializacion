@@ -1,1 +1,1 @@
-Hasta el apartado 11 del ejercicio
+Hasta el apartado 2 del ejercicio
